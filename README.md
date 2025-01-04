@@ -5,7 +5,7 @@
 ### <p align="center"> ꒷꒦︶꒷꒦︶ ๋࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋࣭ ⭑꒷꒦
 ### <p align="center">  
 ### <p align="center">  
-### <p align="center"> 𝙢𝙖𝙞𝙣 𝙠𝙞𝙣𝙣𝙨  ๋ ࣭ ⭑ 𝘮𝘢𝘦𝘯𝘰 𝘢𝘬𝘪, 𝘤𝘢𝘦𝘭𝘶𝘴, 𝘬𝘪𝘮 𝘥𝘰𝘬𝘫𝘢, 𝘨𝘰𝘳𝘰 𝘢𝘬𝘦𝘤𝘩𝘪/𝘺𝘰𝘴𝘶𝘬𝘦 𝘩𝘢𝘯𝘢𝘮𝘶𝘳𝘢, 𝘤𝘩𝘦𝘯𝘨 𝘹𝘪𝘢𝘰𝘴𝘩𝘪, 𝘪𝘷𝘢𝘯, 𝘵𝘴𝘶𝘬𝘢𝘴𝘢 𝘵𝘦𝘯𝘮𝘢 / 𝘴𝘩𝘪𝘯𝘰𝘯𝘰𝘮𝘦 𝘢𝘬𝘪𝘵𝘰, 𝘴𝘬𝘺𝘭𝘢𝘳.
+### <p align="center"> 𝙢𝙖𝙞𝙣 𝙠𝙞𝙣𝙣𝙨  ๋ ࣭ ⭑ 𝘮𝘢𝘦𝘯𝘰 𝘢𝘬𝘪, 𝘤𝘢𝘦𝘭𝘶𝘴, 𝘬𝘪𝘮 𝘥𝘰𝘬𝘫𝘢, 𝘨𝘰𝘳𝘰 𝘢𝘬𝘦𝘤𝘩𝘪/𝘺𝘰𝘴𝘶𝘬𝘦 𝘩𝘢𝘯𝘢𝘮𝘶𝘳𝘢, 𝘤𝘩𝘦𝘯𝘨 𝘹𝘪𝘢𝘰𝘴𝘩𝘪, 𝘪𝘷𝘢𝘯, 𝘴𝘬𝘺𝘭𝘢𝘳.
 ### <p align="center">
 
 <p align="center"> <img src="https://media.tenor.com/7-ET01coGZ0AAAAM/honkai-honkai-star-rail.gif"<width="130" height="130"> 
