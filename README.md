@@ -14,4 +14,4 @@
 <img src="https://media.tenor.com/L4ciesqQHtUAAAAM/cheng-xiaoshi-toki.gif"<width="130" height="130">
   <img src="https://media.tenor.com/YJP9r1fwkkoAAAAM/ivan-alien-stage.gif"<width="130" height="130">
 <img src="https://media1.tenor.com/m/g6oFE3VEWPgAAAAd/nakayama-tsukasa-tenma.gif"<width="130" height="130">
-<img src="https://media.tenor.com/JPDN_i8slN8AAAAM/middle-school-boy-does-a-stunt-when-nobody-is-watching-shinonome.gif"<width="130" height="130">
+<img src=""<width="130" height="130">
