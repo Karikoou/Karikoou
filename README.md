@@ -13,5 +13,5 @@
 <img src="https://media.tenor.com/YMtcv1OioMwAAAAM/persona5-goro-akechi.gif"<width="130" height="130">
 <img src="https://media.tenor.com/L4ciesqQHtUAAAAM/cheng-xiaoshi-toki.gif"<width="130" height="130">
   <img src="https://media.tenor.com/YJP9r1fwkkoAAAAM/ivan-alien-stage.gif"<width="130" height="130">
-<img src="https://tenor.com/ru/view/project-sekai-tsukasa-tenma-tsukasa-prsk-pjsekai-gif-22658158"<width="130" height="130">
+<img src="https://media1.tenor.com/m/EB0hZh3EiOgAAAAC/project-sekai-tsukasa-tenma.gif"<width="130" height="130">
 <img src=""<width="130" height="130">
